@@ -1,3 +1,8 @@
+---
+title: "How to build a table"
+date: 2022-08-15
+---
+
 1. Become a lumber collector
 2. Acclimate lumber to your space
 3. Mill lumber into rough dimensions
