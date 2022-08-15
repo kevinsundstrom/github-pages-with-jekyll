@@ -1,5 +1,5 @@
 ---
-title: "Welcome to my blog"
+title: "Quarter Sawn White Oak Dining Table"
 ---
 
-I'm glad you are here. I plan to talk about ...
+Designed to handle significant abuse, this table features a 1.27 inch top that will certainly be sanded and refinished multiple times. 
